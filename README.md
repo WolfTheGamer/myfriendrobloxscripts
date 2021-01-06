@@ -1,2 +1,2 @@
 # myfriendrobloxscripts
-Roblox
+all hax in this repositorie are free
